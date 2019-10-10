@@ -23,7 +23,7 @@ Edmonton, Alberta
 - Full Name (written in English and in other language)
   Mohammed Irfan Patel
 - Nick Names  (aka) that friends and family give you
-Patel, Hamad and shorty
+Patel and Hammed 
 - Culture, Religion,& customs examples: food & celebrations
-Islam is my religion my Cultural foods are butter chicken, tandoori chicken and many others I also like eating pizza burgers but these are two food that most Canadians love 
+Islam is my religion my Cultural foods are butter chicken, tandoori chicken and many others I also like eating pizza burgers but these are two food that most Canadians love
 (i.e. images and video's)
